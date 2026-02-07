@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 
 # 👋Reach out to me
 - 💬 Ask me about anything.
-- 📫 My email : hibariyingliu@gmail.com or ly_hibariying@163.com
+- 📫 My email : ly_hibariying@163.com
